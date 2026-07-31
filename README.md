@@ -2,5 +2,6 @@
 
 **[STRAW PAGE ](https://heigwr.straw.page/)**
 
-<img width="736" height="817" alt="Untitled53_20260801000747" src="https://github.com/user-attachments/assets/e9947110-3ba1-4bf2-ae69-64b5940e6576" />
+<img width="735" height="650" alt="Untitled54_20260801003718" src="https://github.com/user-attachments/assets/2e683371-4761-4f84-91c1-64b4e8ad22ff" />
+
 

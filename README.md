@@ -16,8 +16,8 @@ ${\textsf{\color{#BAC5E0} be}}$ ${\textsf{\color{#CAD1E2} existin like}}$
     </tr>
   </table>
 
- ${\textsf{\color{#F5D9D7} 𓂃}}$ ${\textsf{\color{#F5E0C4} ࣪}}$ ${\textsf{\color{#F8EAD5} ˖}}$ [rentry](https://rentry.co/reiayanamichan?utm_source=Pinterest&utm_medium=organic) ${\textsf{\color{#E5F4D9}⁺}}$ ${\textsf{\color{#E4E1EB} ༝}}$ [strawpage](https://rizyyr.straw.page/) ${\textsf{\color{#ECDCEC}⭑}}$ ${\textsf{\color{#F4F3EA}؛}}$
-<img src="https://komarev.com/ghpvc/?username=100bottlesofglue&style=flat-square&color=B6B9B2&label=george+jr" alt="profile view counter" width="100" align="center">
+ ${\textsf{\color{#D3D9E8} 𓂃}}$ ${\textsf{\color{#F5E0C4} ࣪}}$ ${\textsf{\color{#BAC5E0} ˖}}$ [rentry](https://rentry.co/reiayanamichan?utm_source=Pinterest&utm_medium=organic) ${\textsf{\color{#BAC5E0}⁺}}$ ${\textsf{\color{#CAD1E2} ༝}}$ [strawpage](https://rizyyr.straw.page/) ${\textsf{\color{#CAD1E2}⭑}}$ ${\textsf{\color{#FFFFFF}؛}}$
+
 
 
 
